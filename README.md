@@ -2,7 +2,7 @@
 
 ## I'm Danuja Jayasuriya
 
-![](https://komarev.com/ghpvc/?username=geethmakae&color=green)
+![](https://komarev.com/ghpvc/?username=danuja01&color=green)
 
 🔭 A dedicated learner who is focused on providing an outstanding service to the finest quality. Always try to complete tasks assigned to the utmost level and therefore is motivated to reach perfection. Is a responsible individual who is driven to give a hundred percent not only when it comes to professional duties, but also day to day activities.😍
 
