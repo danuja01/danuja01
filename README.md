@@ -106,3 +106,6 @@
 
 ⚡ Fun fact: The first computer virus was a Creeper. 😵‍💫
 
+[![@danuja's Holopin board](https://holopin.me/danuja)](https://holopin.io/@danuja)
+
+
