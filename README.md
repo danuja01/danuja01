@@ -10,7 +10,7 @@
 
 - https://www.facebook.com/danujahemal/
 - https://www.linkedin.com/in/danuja-jayasuriya-11483b211/
-- https://danuja.live/
+- https://danuja.me/
 
 <hr />
 <h3 align="left">Languages and Tools:</h3>
@@ -107,6 +107,6 @@
 
 ⚡ Fun fact: The first computer virus was a Creeper. 😵‍💫
 
-[![@danuja's Holopin board](https://holopin.me/danuja)](https://holopin.io/@danuja)
+
 
 
